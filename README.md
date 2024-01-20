@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **atifhameed11312@gmail.com**
 
-- 📄 Know about my experiences [atif-hameed-resume.tiiny.site](https://atifhameed-resume.tiiny.site)
+- 📄 Know about my experiences [atif-hameed-resume.tiiny.site](https://atif-hameed-resume.tiiny.site)
 
 - ⚡ Fun fact **I think I am funny😁**
 
